@@ -179,6 +179,8 @@ O trabalho apresenta:
 
 **Allan Miqueias de C. Santos** 
 
+**Francisco de Assis Brito Filho** 
+
 **Wedryson Lucas Xavier O. Souza** 
 
 Universidade Federal Rural do Semi-Árido (UFERSA)  
